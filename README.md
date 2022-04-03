@@ -1,3 +1,3 @@
 # khawasu-web
 
-Coming soon
+Coming soon [in private]
